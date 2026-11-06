@@ -26,7 +26,7 @@ I'm here to learn and contribute in any way possible!
 #### 💬 Feel free to ask me about my journey & goal!
 
 #### ⚡ Fun fact about me: I'm a serious Halloween dresser. 🎃👻 
-*(Some of the characters I have tried are: Hagrid, Jesse Pinkman, Nurse Joker, The Baby Boss, ... Feel free to reach out and let me know what character I should try for the next Halloween! 😄)* 
+*(Some of the characters I have tried are: Hagrid, Jesse Pinkman, Nurse Joker, The Boss Baby, ... Feel free to reach out and let me know what character I should try for the next Halloween! 😄)* 
 
 Thanks for visiting my page! I'm looking forward to collaborating with you to work on projects for a greater impact! 
 
